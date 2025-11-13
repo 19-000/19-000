@@ -1,16 +1,15 @@
-## Hi there 👋
+<p align="center">
+☻☺︎ 𝘏𝘪 𝘵𝘩𝘦𝘳𝘦! 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 . ☺︎☻
+ 
+  • 𝘯𝘰𝘵𝘩𝘪𝘯𝘨 𝘩𝘦𝘳𝘦 𝘮𝘶𝘤𝘩, 𝘑𝘶𝘴𝘵 𝘢 𝘣𝘳𝘪𝘦𝘧 𝘰𝘷𝘦𝘳𝘷𝘪𝘦𝘸. •
+  
+  "𝐷𝑜𝑛'𝑡 𝑐𝑜𝑝𝑦 𝑚𝑦 𝑑𝑒𝑎𝑟 𝑝𝑜𝑛𝑦 𝑝𝑙𝑒𝑎𝑠𝑒! ^_^ 𝑜𝑟 𝑡𝑎𝑘𝑒 𝑎𝑛𝑦 𝑖𝑑𝑒𝑎𝑠 𝑜𝑓 𝑚𝑦 𝑝𝑜𝑛𝑖𝑒𝑠"
 
-<!--
-**19-000/19-000** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  "𝐼𝑓 𝑦𝑜𝑢 𝑤𝑎𝑛𝑡 𝑡𝑜 𝑎𝑠𝑘 𝑓𝑜𝑟 𝑖𝑑𝑒𝑎𝑠 𝑜𝑟 𝑎𝑛𝑦𝑡ℎ𝑖𝑛𝑔 𝑓𝑟𝑜𝑚 𝑚𝑒, 𝑝𝑙𝑒𝑎𝑠𝑒 𝑎𝑠𝑘 𝑓𝑜𝑟 𝑝𝑒𝑟𝑚𝑖𝑠𝑠𝑖𝑜𝑛."
 
-Here are some ideas to get you started:
+  • 𝖨 𝖽𝗈𝗇'𝗍 𝗁𝖺𝗏𝖾 𝖺𝗅𝗍, 𝗂𝖿 𝗒𝗈𝗎 𝗁𝖺𝗏𝖾 𝖺𝗇𝗒 𝖽𝗈𝗎𝖻𝗍𝗌, 𝖿𝖾𝖾𝗅 𝖿𝗋𝖾𝖾 𝗍𝗈 𝖺𝗌𝗄 𝖺𝗇𝗒𝗍𝗂𝗆𝖾, 𝖯𝗅𝗎𝗁 𝗃𝗎𝗌𝗍 𝖽on't say I'm 𝖺𝗎𝗍𝗂𝗌𝗍𝗂𝖼 😭•
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  • 𝖬𝗒 𝗌𝗍𝗒𝗅𝖾 𝗂𝗌 𝗌𝗈𝗆𝖾𝗍𝗁𝗂𝗇𝗀 𝖨 𝗅𝖾𝖺𝗋𝗇𝖾𝖽 𝗈𝗇 𝗆𝗒 𝗈𝗐𝗇 𝗋𝖾𝗀𝖺𝗋𝖽𝗂𝗇𝗀 𝖼𝗈𝗅𝗈𝗋 𝗉𝖺𝗅𝖾𝗍𝗍𝖾𝗌, 𝖺𝗇𝖽 𝖨 𝗍𝖺𝗄𝖾 𝗂𝗍 𝖿𝗋𝗈𝗆 𝗆𝗒 𝗉𝖺𝗂𝗇𝗍𝗂𝗇𝗀𝗌 •
+
+  𝖨 𝖠𝖬 𝖵𝖤𝖱𝖸 𝖧𝖠𝖯𝖯𝖸 𝖳𝖮 𝖡𝖤 𝖥𝖱𝖨𝖤𝖭𝖣𝖲 𝖶𝖨𝖳𝖧 𝖲𝖮𝖬𝖤𝖮𝖭𝖤 𝖡𝖱𝖡𝖱𝖡𝖡𝖪 𝖲𝖮 𝖣𝖮𝖭'𝖳 𝖧𝖤𝖲𝖨𝖳𝖠𝖳𝖤, 𝖨'𝖬 𝖶𝖨𝖫𝖫𝖨𝖭𝖦 𝖳𝖮 𝖧𝖤𝖫𝖯 ( 𝗍𝗁𝖾 𝗈𝗇𝖾 𝗐𝗁𝗈 𝗌𝗁𝗒 & 𝗌𝖼𝖺𝗋𝖾𝖽 𝗂𝗌 𝗆𝖾 𝖺𝖼𝗍𝗅 ) 
+</p>
