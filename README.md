@@ -1,7 +1,10 @@
 <p align="center">
 
  
-☻☺︎ 𝘏𝘪 𝘵𝘩𝘦𝘳𝘦! 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 . ☺︎☻
+
+![Image](https://github.com/user-attachments/assets/70a9933f-90b1-4310-9b2a-e35605c0fd8e)
+![Image](https://github.com/user-attachments/assets/5499f907-526b-49c0-84bb-93428240911f)
+
 
  ![Image](https://github.com/user-attachments/assets/c35d3603-36c2-4dc9-a272-774fea6e96ea)
 
