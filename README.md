@@ -3,9 +3,8 @@
  
 ☻☺︎ 𝘏𝘪 𝘵𝘩𝘦𝘳𝘦! 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 . ☺︎☻
 
- ![Image](https://github.com/user-attachments/assets/3355b4d0-7eb5-4946-ad0d-6c4178b38941)
- ![Image](https://github.com/user-attachments/assets/3355b4d0-7eb5-4946-ad0d-6c4178b38941)
- 
+ ![Image](https://github.com/user-attachments/assets/c35d3603-36c2-4dc9-a272-774fea6e96ea)
+
   • 𝘯𝘰𝘵𝘩𝘪𝘯𝘨 𝘩𝘦𝘳𝘦 𝘮𝘶𝘤𝘩, 𝘑𝘶𝘴𝘵 𝘢 𝘣𝘳𝘪𝘦𝘧 𝘰𝘷𝘦𝘳𝘷𝘪𝘦𝘸. •
   
   "𝐷𝑜𝑛'𝑡 𝑐𝑜𝑝𝑦 𝑚𝑦 𝑑𝑒𝑎𝑟 𝑝𝑜𝑛𝑦 𝑝𝑙𝑒𝑎𝑠𝑒! ^_^ 𝑜𝑟 𝑡𝑎𝑘𝑒 𝑎𝑛𝑦 𝑖𝑑𝑒𝑎𝑠 𝑜𝑓 𝑚𝑦 𝑝𝑜𝑛𝑖𝑒𝑠"
@@ -28,7 +27,7 @@
   ![Image](https://github.com/user-attachments/assets/c9776069-a4af-46ff-969c-af1daec196ea)
   
 
-  <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/f5184099-39e6-4904-afed-5636781530b7" />
+  <img width="1552" height="1014" alt="Image" src="https://github.com/user-attachments/assets/48eab28f-1855-44ad-9b7f-2821b5e444d0" />
 
   ︴˚〰︎˚ ˙ ∘ • ⊹ ____________________________________________ꔛꔛ____________________________________________ ⊹ • ∘ ˚ ˚〰︎˚ ︴
 
