@@ -9,6 +9,8 @@
  ![Image](https://github.com/user-attachments/assets/c35d3603-36c2-4dc9-a272-774fea6e96ea) ![Image](https://github.com/user-attachments/assets/c232b87c-5303-40eb-be4c-96e564d7f011)
 
   • JYO SUP
+
+  • I often afk, in the menu to make skin. Feel free to C+H/any/ship/ int ( except Mettaton/Queen x Tenna 🥹 )
   
   • I hate it when people call me autistic and use alt when they have no idea 💔
   
