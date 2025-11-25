@@ -13,6 +13,8 @@
   • I often afk, in the menu to make skin. Feel free to C+H/any/ship/ int ( except Mettaton/Queen x Tenna 🥹 )
   
   • I hate it when people call me autistic and use alt when they have no idea 💔
+
+  •Go to Facebook link to see more information about me.
   
   • DNC/get ref my pony skin without permission.
   
