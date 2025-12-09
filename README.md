@@ -13,24 +13,16 @@
 <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/4cba74d3-d8a0-4485-80d4-56b41513039e" />
 ![Image](https://github.com/user-attachments/assets/9f47f310-72e1-4c42-8422-7fe8242095f5)
 
+![Image](https://github.com/user-attachments/assets/80ab2d50-7799-4a41-80f3-b5fc53fd1230)
+![Image](https://github.com/user-attachments/assets/3096766f-2618-496a-aba4-ae90b790f2cd)
+![Image](https://github.com/user-attachments/assets/748f18a0-b0c9-4b4a-b2c0-b7ea6688e64c)
+
 
 
 
  ![Image](https://github.com/user-attachments/assets/c35d3603-36c2-4dc9-a272-774fea6e96ea) ![Image](https://github.com/user-attachments/assets/c232b87c-5303-40eb-be4c-96e564d7f011)
 
-  • JYO SUP
-
-  • I often afk, in the menu to make skin. Feel free to C+H/any/ship/ int ( except Mettaton/Queen x Tenna 🥹 )
-  
-  • I hate it when people call me autistic and use alt when they have no idea 💔
-
-  •Go to Facebook link to see more information about me.
-  
-  • DNC/get ref my pony skin without permission.
-
-  • I am very bad at communication, I don't even have words to say.
-  
-  • I often give my gmail game account to my friends, that's why I'm in their account sometimes .
+ 
   
   
   ![Image](https://github.com/user-attachments/assets/c9776069-a4af-46ff-969c-af1daec196ea)
